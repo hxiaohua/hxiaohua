@@ -1,4 +1,3 @@
-more info
-pls
-+Vx:207708848
-thanks!
+HuangXiaohua
+Jiangxi Pingxiang Middle School
+information technology teacher!
