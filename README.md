@@ -1,5 +1,3 @@
-HuangXiaohua
+Huang Xiaohua
 
-Jiangxi Pingxiang Middle School
-
-information technology teacher!
+teacher of Jiangxi Pingxiang Middle School
